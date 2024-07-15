@@ -1,0 +1,4 @@
+- [https://medium.com/@TonyKroos2025](https://medium.com/@TonyKroos2025)
+- [https://www.quora.com/profile/Tony-Kroos-2025](https://www.quora.com/profile/Tony-Kroos-2025)
+- [https://x.com/TonyKroos2025](https://x.com/TonyKroos2025)
+- [https://www.reddit.com/user/TonyKroos2025/](https://www.reddit.com/user/TonyKroos2025/)
